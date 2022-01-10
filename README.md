@@ -1,0 +1,2 @@
+# Coolsculpting
+Coolsculpting in Chennai? Chennai Vs cool? Yes! Coolsculpting, a cool solution, the more natural solution. Certain procedures that use sonic waves, laser, and some surgical methods to remove fat can indeed destroy other tissue by burning, shattering or extracting non-fat cells in the treatment process. This requires downtime for your body to heal completely and is totally uncool. CoolSculpting doesn’t burn, extract or shatter any cells. For more details visit https://handehospital.org/departments/coolsculpting-in-chennai/ or call us 98410 11390.
